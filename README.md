@@ -1,0 +1,1 @@
+# 2025_B_KKP_PZPI-22-8_Stavytskyi_O_S
